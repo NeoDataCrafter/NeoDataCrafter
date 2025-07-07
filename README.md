@@ -22,7 +22,7 @@
 ---
 
 🔗 ¡Conectemos!  
-- [LinkedIn](https://www.linkedin.com/in/alejandro-ramírez-montiel)
+- [LinkedIn](https://www.linkedin.com/in/alejandro-ram%C3%ADrez-montiel-3218b534b/)
 
 ---
 
